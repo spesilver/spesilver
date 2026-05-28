@@ -15,7 +15,7 @@
 
 $\text{\color{#ff973a} dayshift⠀ಇ⠀kennedy⠀✧⠀ask }$\
 $\text{\color{#fff4b3} davesport⠀lover⠀♪⠀⠀he/him }$\
-$\text{\color{#ae54bc} ❛⠀19⠀:⠀ꕮ⠀physment disabled }$
+$\text{\color{#ae54bc} ಇ.⠀19⠀:⠀⸸⠀physment disabled }$
 
 
 ![](https://komarev.com/ghpvc/?username=millerz-mixed&style=flat-square&color=000000&label=You+think+any+of+this+was+because+I+LOVED+Freddy's,+or+loved+YOU?)
