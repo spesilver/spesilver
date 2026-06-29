@@ -13,12 +13,10 @@
 
 
 
-$\text{\color{#ff973a} dayshift⠀೫⠀kennedy⠀✧⠀ask }$\
-$\text{\color{#fff4b3} davesport⠀lover⠀♪⠀⠀he/him }$\
-$\text{\color{#ae54bc} ಇ.⠀19⠀:⠀⸸⠀physment disabled }$
+$\text{\color{#ff973a} redoing at tome point }$
 
 
-![](https://komarev.com/ghpvc/?username=millerz-mixed&style=flat-square&color=000000&label=You+think+any+of+this+was+because+I+LOVED+Freddy's,+or+loved+YOU?)
+![](https://komarev.com/ghpvc/?username=millerz-mixed&style=flat-square&color=000000&label=,)
 
 </div>
  </td>
