@@ -13,7 +13,7 @@
 
 
 
-$\text{\color{#ff973a} redoing at tome point }$
+$\text{\color{#ffffff} redoing at some point }$
 
 
 ![](https://komarev.com/ghpvc/?username=millerz-mixed&style=flat-square&color=000000&label=,)
