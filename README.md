@@ -16,7 +16,7 @@
 $\text{\color{#ffffff} spesilver. he. c+h always. cuddle comfort. }$
 
 
-![](https://komarev.com/ghpvc/?username=millerz-mixed&style=flat-square&color=929292&label=,)
+![](https://komarev.com/ghpvc/?username=millerz-mixed&style=flat-square&color=929292&label=Seems+like+it+wasn't+just+luck+that's+gotten+you+this+far.)
 
 </div>
  </td>
