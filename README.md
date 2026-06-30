@@ -8,15 +8,15 @@
 
 
 <p><b>
-<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/Untitled249_20260528144619.png" width="160">
+<img align="center" src="https://file.garden/ZspxsFhuznUkgAQY/pokemon/New%20Project%20-%202026-06-30T023143.687.png" width="300">
 </b></p>
 
 
 
-$\text{\color{#ffffff} redoing at some point }$
+$\text{\color{#ffffff} spesilver. he. c+h always. cuddle comfort. }$
 
 
-![](https://komarev.com/ghpvc/?username=millerz-mixed&style=flat-square&color=000000&label=,)
+![](https://komarev.com/ghpvc/?username=millerz-mixed&style=flat-square&color=929292&label=,)
 
 </div>
  </td>
